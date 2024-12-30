@@ -1,0 +1,1 @@
+# SQL-Project.-Ad-Hoc-Insights.-Domain-Consumer-Goods.-
